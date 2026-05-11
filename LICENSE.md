@@ -1,4 +1,4 @@
-
+premium Obsidian for Windows Module | cloud-sync + voice-notes is the best Obsidian for Windows module, featuring cloud-sync and voice-notes. Powerful, efficient, and optimized
 
 
 
